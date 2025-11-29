@@ -9,3 +9,6 @@ cayahhahaha
 fsdfsdfsd
 
 aku suka susu besar
+
+
+aku kaya
