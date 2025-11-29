@@ -1,6 +1,6 @@
 <?php
 echo "halo mas ghozy ganteng";
 
-gantengan gweh di pd banget astaganaga
+lana ganteng bgt
 ?>
 djfnjsdfahsiodfh
