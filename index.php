@@ -9,3 +9,4 @@ cayahhahaha
 fsdfsdfsd
 
 aku suka susu besar
+saya sudak yang sedang nanti kembung kalau banyak banyak
